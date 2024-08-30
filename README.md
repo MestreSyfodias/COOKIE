@@ -1,2 +1,2 @@
 # COOKIE
-Quem não abrir é gay!
+Identity V é uma bosta!!!!!!!!!!!!!1
